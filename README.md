@@ -1,5 +1,9 @@
 # frstone1
-first
+firs
 
 Hello Sheshandri!!!!!!
-hiiiiii shishiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+
+SHIIISHIIIIIII U STUPID!!
+hiiiii
+
+
