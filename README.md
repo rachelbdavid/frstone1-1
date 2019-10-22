@@ -6,8 +6,7 @@ Hello Sheshandri!!!!!!
 SHIIISHIIIIIII U STUPID!!
 hiiiii
 
-hey idiot
-=======
 shut the hell up
 
+hey buddy
 
